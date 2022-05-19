@@ -16,7 +16,7 @@
 * Guiding the process
 * Passing the torch
 
-There is no separation. Everything is connected. I thought about how sad it was that we live in such an individualistic culture without realizing that the only individual in the universe is the universe itself. The universe is indivisible.
+There is no separation. Everything is connected. I thought about how sad it is that we live in such an individualistic culture without realizing that the only individual in the universe is the universe itself. The universe is indivisible.
 
 We keep looking for the building blocks of the universe by trying to find the smallest particle. We think that by understanding the smallest indivisible part of the universe, we can understand all of life. Humans are silly. How can finding the gear make the clock? The machine metaphor itself is the problem. We miss the forest for the trees. The universe is not a machine. The universe is alive.
 
@@ -38,9 +38,9 @@ https://bible.com/bible/111/jhn.17.20-26.NIV
 
 We walk around, feeling separate, isolated, lonely, disconnected, and alienated from each other, and it feels like we are all screaming into the void to be heard, wondering if anyone notices us, if anyone cares, if anyone will pay attention to our pain.
 
-Luna had a different perception of the world. In every interaction, atoms rub off. We are forever changed by bumping up against each other. Change is the only constant in the universe. There is no point resisting change.
+I suppose I have a different perception of the world. In every interaction, atoms rub off. We are forever changed by bumping up against each other. Change is the only constant in the universe. There is no point resisting change.
 
-Every person she met became a part of her. Even the bully was part of her. There was no point feeling guilty, because that would mean taking on the guilt of the entire world. No one can bear that burden of guilt. Guilt and shame are just the stories we tell ourselves about how we don’t deserve to live.
+Every person I meet becomes a part of me. Even the bully is part of me. There is no point feeling guilty, because that would mean taking on the guilt of the entire world. No one can bear that burden of guilt. Guilt and shame are just the stories we tell ourselves about how we don’t deserve to live.
 
 The fact of my existence tells me otherwise. Until I am dead, I still have agency. The question, then, is what I am going to do with my power to choose, to edit my own life, to decide what I think is important.
 
